@@ -5,4 +5,5 @@
 - 📍 We located in Dnipro
 - 📝 How to reach me: 
 Telegram - @YanaMartovytska,
-email: yana.martovytska@gmail.com
+email: yana.martovytska@gmail.com 
+LinkedIn - https://www.linkedin.com/in/yana-martovytska-99972766/
